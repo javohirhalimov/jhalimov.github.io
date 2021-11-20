@@ -1,5 +1,5 @@
 # Javohir Halimov 
-[](https://drive.google.com/file/d/1uuIqTkgMvjLF6KFNeIxV9m2hWOLtc4jv/view?usp=sharing)
+[profile picture](https://drive.google.com/file/d/1uuIqTkgMvjLF6KFNeIxV9m2hWOLtc4jv/view?usp=sharing)
 <br/>
 
 ## About Me
