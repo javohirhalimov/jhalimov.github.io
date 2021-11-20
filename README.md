@@ -1,5 +1,4 @@
 # Javohir Halimov    
-[Profile Picture](github_profile.jpg)
 
 ## About Me
 
